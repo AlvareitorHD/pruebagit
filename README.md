@@ -1,2 +1,2 @@
 # pruebagit
-alexxxx mira mi git :3
+alexxxx no mires mi git >:|
